@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nepehue06
 - 👀 I’m interested in women.
-- 🌱 I’m currently learning dateing.
+- 🌱 I’m currently learning W rizz.
 - 💞️ I’m looking to collaborate on intercouse
 - 📫 How to reach me: snap
 
